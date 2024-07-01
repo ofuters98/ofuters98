@@ -37,7 +37,6 @@ and as a result I ended up taking a **Skills Bootcamp in Software Engineering.**
 * Watching films and TV series 📽️
 * Watching football ⚽
 * Watching NFL 🏈
-* Watching professional wrestling ☝️
 * Playing Video Games 🎮 
 * Listening to rock music 🎵
 * Going to rock concerts / music festivals 🎸
